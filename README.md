@@ -10,7 +10,6 @@
 - 📫 How to reach me **oscaronaldo2001@gmail.com**
 
 - 📄 Know about my certifies [https://bit.ly/3LbzXRK]
-- (https://bit.ly/3LbzXRK)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
