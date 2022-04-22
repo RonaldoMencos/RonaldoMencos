@@ -11,7 +11,7 @@
 
 - 📄 Know about my certifies [https://bit.ly/3LbzXRK](https://bit.ly/3LbzXRK)
 
-<h3 align="left">Connect with me:</h3>
+<hr>
 <p align="left">
 </p>
 
