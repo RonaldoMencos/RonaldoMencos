@@ -9,7 +9,8 @@
 
 - 📫 How to reach me **oscaronaldo2001@gmail.com**
 
-- 📄 Know about my certifies [https://drive.google.com/drive/folders/1tYibiVsNubtEfq5lNujz4eT8B9sMyUOo?usp=sharing](https://drive.google.com/drive/folders/1tYibiVsNubtEfq5lNujz4eT8B9sMyUOo?usp=sharing)
+- 📄 Know about my certifies [https://bit.ly/3LbzXRK]
+- (https://bit.ly/3LbzXRK)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
